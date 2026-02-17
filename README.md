@@ -1,4 +1,4 @@
-Nothumblebutgod!
+Nothumblebutgod
 
 
 ## 🌐 Socials:
